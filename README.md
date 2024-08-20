@@ -1,5 +1,5 @@
 Fernando Civera Ordóñez
-608505976
+
 fernandociveraord@gmail.com
 Location: Seville, Andalusia, Spain
 Position of the addressee: Personnel Department
